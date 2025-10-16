@@ -13,7 +13,7 @@ Most recent shorthand created is called dance, a cross eclectic inspired shortha
 ## previous
 - vertical scripts, "glosse" vertical v2 most advanced.
 - international vertical is a vertical adaption of the kunowski brothers system (Their system was named 'Nationalstenography' and adaptions to other languages like japanese or esperanto 'Intersteno', or 'Internatial stenography).
-- siragana was my first vertical attempt and it still is a very beatiful attempt - even though it was not that fluent i was later on looking for, but it it the most japanese looking - meaning: cool looking of them all.
+- siragana was my first vertical attempt and it still is a very beautiful script - even though it was not that fluid, something I was later on looking for, but it it the most japanese looking script - very cool indeed.
 
 ## easy contact
 via Reddit r/fastwriting, r/shorthand - [u/LeadingSuspect5855](https://www.reddit.com/user/LeadingSuspect5855/)
